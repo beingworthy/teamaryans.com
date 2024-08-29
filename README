@@ -1,1 +1,0 @@
-# teamaryans.com
